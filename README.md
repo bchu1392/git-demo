@@ -8,6 +8,4 @@ alkfjalfjlajfansfnaljlkjdflkjaj
 
 
 
-## Ipsum 
-
-afafafasdfajflurierjj
+## WEBSITE CONTENTS
